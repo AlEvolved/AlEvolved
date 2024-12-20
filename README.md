@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **alex.cauquy@coda-student.school**
 
-- ⚡ Fun fact **Very funny guy**
+- ⚡ Fun fact **I'm a very funny guy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
